@@ -1,1 +1,0 @@
-# Midex-royale-inn
